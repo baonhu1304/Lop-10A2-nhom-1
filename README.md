@@ -1,1 +1,1 @@
-# L-p-10A2-Nh-m-1
+Lop 10A2 nhom 1
