@@ -1,1 +1,2 @@
-Lop 10A2 nhom 1
+Lớp 10A02 - Nhóm 1
+Xinh đẹp tuỵt vời :))
